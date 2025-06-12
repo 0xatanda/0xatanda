@@ -6,7 +6,7 @@ Let’s connect—I’m always open to learning, sharing, and new opportunities.
 
 📬 Email: [atanda0x@gmail.com](mailto:atanda0x@gmail.com)
 🔗 GitHub: [github.com/atanda0x](https://github.com/0xatanda)
-🔗 LinkedIn: [linkedin.com/in/atanda nafiu](https://www.linkedin.com/in/nafiu-atanda) 
+🔗 LinkedIn: [linkedin.com/in/atanda nafiu](https://www.linkedin.com/in/nafiu-atanda-7685681a7/) 
 <div>
 
             
